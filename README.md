@@ -6,3 +6,7 @@ asdxsasad
 s
 
 C:\DT-Files\initializr-verekia-4.0\initializr
+sdasdadsa
+asa
+sas
+as
